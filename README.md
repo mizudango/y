@@ -1,1 +1,2 @@
-# hello. Im mizudango. You like PONG? This is PONG tenplate.Have nice cording!
+昔の俺はバカなのか？！？！？！？！
+あーあ、もうだめだ
