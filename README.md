@@ -1,2 +1,1 @@
-昔の俺はバカなのか？！？！？！？！
-あーあ、もうだめだ
+asdowkokdaowkpaofkpowakf
